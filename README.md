@@ -1,1 +1,0 @@
-# andreipurcar.com
